@@ -1,1 +1,1 @@
-# Pls open https://errorsoft.org
+# Pls open http://errorsoft.org
